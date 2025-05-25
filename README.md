@@ -1,8 +1,7 @@
-![1000066713](https://github.com/user-attachments/assets/b7880f10-0c4f-4905-bf7e-5a6b08ea887f)
+![1000067705](https://github.com/user-attachments/assets/3f989d09-de20-4c30-9e2d-8069e6eb6b91)
 
-<p align="center">
-other <ins>kinnies!</ins>
-</p>
+
+### <p align="right">other ㅤㅤ<ins>kinnies!</ins></p>
 
 1. ena shinonome
 2. lingsha
