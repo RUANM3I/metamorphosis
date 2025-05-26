@@ -6,3 +6,7 @@ ___
 ### <p align="right">otherㅤ❀ㅤ<ins>kinnies.</ins></p>
 
 ena shinonomeㅤㅤlingshaㅤㅤkeqing hachiwareㅤㅤㅤㅤㅤwhite lily cookie.
+
+### <p align="right">myㅤ❀ㅤ<ins>boyfriends.</ins></p>
+
+camellia cookieㅤㅤㅤclotted cream cookieㅤㅤㅤwriothesleyㅤgallagher aventurineㅤㅤanaxagorasㅤㅤㅤifa
