@@ -11,4 +11,12 @@ nene kusanagi
 ### <p align="right">myㅤ❀ㅤ<ins>boyfriends.</ins></p>
 
 camellia cookieㅤㅤㅤclotted cream cookieㅤㅤㅤwriothesleyㅤgallagher aventurineㅤㅤanaxagorasㅤㅤㅤifa<br>
-akito shinonomeㅤㅤrui kamishiro
+akito  shinonomeㅤㅤrui  kamishiro
+
+<br><br>
+
+
+
+https://github.com/user-attachments/assets/cbcaef98-560a-4e7a-a2d0-ba1c5045584d
+
+
