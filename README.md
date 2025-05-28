@@ -5,8 +5,10 @@ ___
 
 ### <p align="right">otherㅤ❀ㅤ<ins>kinnies.</ins></p>
 
-ena shinonomeㅤㅤlingshaㅤㅤkeqing hachiwareㅤㅤㅤㅤㅤwhite lily cookie.
+honami mochizukiㅤㅤlingshaㅤㅤkeqing hachiwareㅤwhite lily cookie<br>
+nene kusanagi
 
 ### <p align="right">myㅤ❀ㅤ<ins>boyfriends.</ins></p>
 
-camellia cookieㅤㅤㅤclotted cream cookieㅤㅤㅤwriothesleyㅤgallagher aventurineㅤㅤanaxagorasㅤㅤㅤifa
+camellia cookieㅤㅤㅤclotted cream cookieㅤㅤㅤwriothesleyㅤgallagher aventurineㅤㅤanaxagorasㅤㅤㅤifa<br>
+akito shinonomeㅤㅤrui kamishiro
