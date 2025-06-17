@@ -5,13 +5,28 @@ ___
 
 ### <p align="right">otherㅤ❀ㅤ<ins>kinnies.</ins></p>
 
-honami mochizukiㅤㅤlingshaㅤㅤkeqing hachiwareㅤwhite lily cookie<br>
-nene kusanagi
+|<p align="center">🔬</p>|
+|---------------------|
+|<p align="center">honami mochizuki</p>|
+|<p align="center">lingsha</p>|
+|<p align="center">keqing</p>|
+|<p align="center">hachiware</p>|
+|<p align="center">white lily cookie</p>|
+|<p align="center">nene kusanagi</p>|
 
 ### <p align="right">myㅤ❀ㅤ<ins>boyfriends.</ins></p>
 
-camellia cookieㅤㅤㅤclotted cream cookieㅤㅤㅤwriothesleyㅤgallagher aventurineㅤㅤanaxagorasㅤㅤㅤifa<br>
-akito  shinonomeㅤㅤrui  kamishiro
+|<p align="center">💍</p>|
+|---------------------|
+|<p align="center">camellia cookie</p>|
+|<p align="center">clotted cream cookie</p>|
+|<p align="center">wriothesley</p>|
+|<p align="center">gallagher</p>|
+|<p align="center">aventurine</p>|
+|<p align="center">anaxagoras</p>|
+|<p align="center">ifa</p>|
+|<p align="center">akito shinonome</p>|
+|<p align="center">rui kamishiro</p>|
 
 <br><br>
 
