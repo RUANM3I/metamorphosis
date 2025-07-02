@@ -7,7 +7,7 @@ ___
 
 |<p align="center">🔬</p>|
 |---------------------|
-|<p align="center">honami mochizuki</p>|
+|<p align="center">ichika hoshino</p>|
 |<p align="center">lingsha</p>|
 |<p align="center">keqing</p>|
 |<p align="center">hachiware</p>|
