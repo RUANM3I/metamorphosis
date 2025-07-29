@@ -13,6 +13,7 @@ ___
 |<p align="center">hachiware</p>|
 |<p align="center">white lily cookie</p>|
 |<p align="center">nene kusanagi</p>|
+|<p align="center">oguri cap</p>|
 
 ### <p align="right">myㅤ❀ㅤ<ins>boyfriends.</ins></p>
 
@@ -27,6 +28,9 @@ ___
 |<p align="center">ifa</p>|
 |<p align="center">akito shinonome</p>|
 |<p align="center">rui kamishiro</p>|
+|<p align="center">kakyoin noriaki</p>|
+|<p align="center">kishibe rohan</p>|
+|<p align="center">nanami kento</p>|
 
 <br><br>
 
