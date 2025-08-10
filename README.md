@@ -31,7 +31,7 @@ ___
 |<p align="center">kakyoin noriaki</p>|
 |<p align="center">kishibe rohan</p>|
 |<p align="center">nanami kento</p>|
-|<p align="center">megumi fushiguri</p>|
+|<p align="center">megumi fushiguro</p>|
 
 <br><br>
 
