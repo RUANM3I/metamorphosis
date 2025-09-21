@@ -32,6 +32,7 @@ ___
 |<p align="center">kishibe rohan</p>|
 |<p align="center">nanami kento</p>|
 |<p align="center">megumi fushiguro</p>|
+|<p align="center">suguru geto</p>|
 
 <br><br>
 
