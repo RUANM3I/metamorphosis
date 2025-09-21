@@ -24,8 +24,7 @@ ___
 |<p align="center">wriothesley</p>|
 |<p align="center">gallagher</p>|
 |<p align="center">aventurine</p>|
-|<p align="center">anaxagoras</p>|
-|<p align="center">ifa</p>|
+|<p align="center">dr ratio</p>|
 |<p align="center">akito shinonome</p>|
 |<p align="center">rui kamishiro</p>|
 |<p align="center">kakyoin noriaki</p>|
