@@ -7,13 +7,12 @@ ___
 
 |<p align="center">🔬</p>|
 |---------------------|
-|<p align="center">ichika hoshino</p>|
+|<p align="center">shiho hinomori</p>|
 |<p align="center">lingsha</p>|
-|<p align="center">keqing</p>|
-|<p align="center">hachiware</p>|
+|<p align="center">clorinde</p>|
+|<p align="center">mejiro mcqueen</p>|
 |<p align="center">white lily cookie</p>|
 |<p align="center">nene kusanagi</p>|
-|<p align="center">oguri cap</p>|
 
 ### <p align="right">myㅤ❀ㅤ<ins>boyfriends.</ins></p>
 
