@@ -31,7 +31,7 @@ ___
 |<p align="center">nanami kento</p>|
 |<p align="center">megumi fushiguro</p>|
 |<p align="center">suguru geto</p>|
-|<p align="center">caleb</p|
+|<p align="center">caleb</p>|
 
 <br><br>
 
