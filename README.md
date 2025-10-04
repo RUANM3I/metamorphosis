@@ -12,7 +12,7 @@ ___
 |<p align="center">clorinde</p>|
 |<p align="center">mejiro mcqueen</p>|
 |<p align="center">white lily cookie</p>|
-|<p align="center">nene kusanagi</p>|
+|<p align="center">ruan mei</p>|
 
 ### <p align="right">myㅤ❀ㅤ<ins>boyfriends.</ins></p>
 
