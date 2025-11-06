@@ -30,7 +30,7 @@ ___
 |<p align="center">kishibe rohan</p>|
 |<p align="center">nanami kento</p>|
 |<p align="center">suguru geto</p>|
-|<p align="center">yuji itadori</p>|
+|<p align="center">toge inumaki</p>|
 
 <br><br>
 
